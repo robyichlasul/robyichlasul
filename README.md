@@ -32,4 +32,4 @@
 
 > *"Bukan background IT, tapi 11 tahun di lab ngasih perspektif unik — ngerti masalah real lab & bisa bikin solusinya sendiri."*
 
-📧 robyichlasul@gmail.com
+📧 [email@robylab.my.id](mailto:email@robylab.my.id)
